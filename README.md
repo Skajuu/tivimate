@@ -1,1 +1,1 @@
-https://ucf84721e60da407629141d393b0.dl.dropboxusercontent.com/cd/0/get/ChFP8Ovx1dpAwbEZ4VawwFsfRf90-vzt7zD-l2LhbG0-RSQy0AJFoA2lD0gT2Ax7q5xA6olyLLPAal2502VCu0oYGjieVr-7dnHj7UCOgJ-xhSijIQ_U8O_Yw-7nayQsszETk_otv8paHO-cZijk0FB9-txARPxyz5n1ZqBHUnu7Mw/file?_download_id=100714543234224914673867123100585774641201713921370001082162872276804&_log_download_success=1#
+https://www.dropbox.com/scl/fi/2v3rretyhkz7xwnx3es1x/TiviMate-Premium-5.0.3.apk?rlkey=81fvw3awp43o1j8buza8qetim&st=adasw2pc&dl=0
