@@ -1,1 +1,1 @@
-https://drive.google.com/file/d/1xP1zUiMpbbLOWIYSkMmCNE-R0aeoZ4pA/view?usp=sharing
+https://download2392.mediafire.com/vfd6eyiskrogJHHVLpq-oc6ZkG7iFaV5_WqbRpThayPxJFzLeWHzmUQdj6V9-Vf8PL8HydaCsZR2-l1nKYpWn6pXy0qkY2c8LgdtNMOAnjeVZCGRlK7Jj1B2ZMcYMJkC0LIU5tFxTZGyw4-LpPJl3GbhBmNyUUwuVhKR6MydDhs/1ed4d3143re9n6c/TiviMate-2.8.0_CMist.apk
