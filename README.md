@@ -1,1 +1,5 @@
-https://www.dropbox.com/scl/fo/y07kpw4kugqkxtd6rl9du/AF7gq-nN9kPyHRvJBz46C_I?rlkey=5u0jnsfr65kouq90sk00vd85c&st=2iiqo7g4&dl=0
+M3U Playlist:
+http://line.argontv.nl/get.php?username=370008184455&password=052238422301&output=ts&type=m3u_plus
+
+EPG URL:
+http://line.argontv.nl/xmltv.php?username=370008184455&password=052238422301
